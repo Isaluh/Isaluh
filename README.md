@@ -1,16 +1,14 @@
-### Hi there 👋
+Ꮺ <strong> Oie </strong> ꒷꒦ ˊˎ- 🤍
 
-<!--
-**Isaluh/Isaluh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
++. ੭ 
 
-Here are some ideas to get you started:
+ღ You can call me Lisa 🍨 </br>
+ღ Lvl 16 🎮 </br>
+ღ Prevest Sul, (GO - ptbr) 🎓 </br>
+ღ Focada em back-end com tendencia full-stack rs 💻 </br>
+ღ Tradutora em horas vagas [ES, EN e JP] 📚 </br>
+ღ Istj 🍸
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
++.˚✦ 
+  
+┗ ━ ━━ ━━━ ━━━━ ━━━━・📌🪔
