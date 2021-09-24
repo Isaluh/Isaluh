@@ -2,6 +2,8 @@
 
 +. ੭ 
 
+<strong> 日本 </strong> 🍡
+
 ღ You can call me Lisa 🍨 </br>
 ღ Lvl 16 🎮 </br>
 ღ Prevest Sul, (GO - ptbr) 🎓 </br>
@@ -17,4 +19,3 @@
 
 <a href="https://discord.gg/72Xx2DuYE6" target="_blank"><img src="https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white" target="_blank"></a>
 <a href="https://wqscan.com/" target="_blank"><img src="https://img.shields.io/badge/Site-yellow?style=for-the-badge&logo=wordpress" target="_blank"></a> 
-
