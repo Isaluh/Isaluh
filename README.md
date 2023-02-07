@@ -6,7 +6,7 @@
 
 ღ You can call me Lisa 🍨 </br>
 ღ Lvl 17 🎮 </br>
-ღ Unigoiás, (GO - ptbr) 🎓 </br>
+ღ SENAI, (GO - ptbr) 🎓 </br>
 ღ Focada em back-end com tendência full-stack rs 💻 </br>
 ღ Tradutora em horas vagas [ES, EN e JP] 📚 </br>
 ღ Istj 🍸
