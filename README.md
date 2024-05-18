@@ -5,7 +5,7 @@
 <strong> 日本 </strong> 🍡
 
 ღ You can call me Lisa 🍨 </br>
-ღ Lvl 18 🎮 </br>
+ღ Lvl 19 🎮 </br>
 ღ SENAI, (GO - ptbr) 🎓 </br>
 ღ Focada em back-end com tendência full-stack rs 💻 </br>
 ღ Tradutora em horas vagas [ES, EN e JP] 📚 </br>
